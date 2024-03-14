@@ -1,6 +1,8 @@
 # 🌟 Welcome to the World of LOLux! 🚀
 
+
 Welcome to the electrifying realm of LOLux, where laughter meets innovation, and memes reign supreme! Buckle up and prepare for a wild ride through the crypto cosmos. Here at LOLux, we're not just disrupting the market; we're rewriting the rulebook and painting the town with pixels of joy! Let's dive into the exciting world of LOLux and discover what sets us apart from the rest. 🎉
+
 
 ## 🚀 About LOLux
 
@@ -29,7 +31,7 @@ Ready to join the LOLux revolution? Strap on your rocket boots and dive headfirs
 ## 🚀 Connect With Us
 
 - **Website**: [lolux.fun](https://www.lolux.fun)
-- **Telegram**: [@LOLlux](https://twitter.com/loluxfun)
+- **Telegram**: [@LOLlux](https://telegram.com/loluxfun)
 - **Facebook**: [LOLux Discord Server](https://facebook.com/lolux.fun)
 
 Thank you for embarking on this thrilling journey with LOLux! Together, let's light up the crypto sky with the brilliance of laughter and innovation! 🚀🤣
