@@ -30,8 +30,8 @@ Ready to join the LOLux revolution? Strap on your rocket boots and dive headfirs
 
 ## 🚀 Connect With Us
 
-- **Website**: [lolux.fun](https://www.lolux.fun)
-- **Telegram**: [@LOLlux](https://telegram.com/loluxfun)
+- **Website**: [lolux.lol](https://www.lolux.lol)
+- **Telegram**: [@LOLlux](https://t.me/loluxlol)
 - **Facebook**: [LOLux Discord Server](https://facebook.com/lolux.fun)
 
 Thank you for embarking on this thrilling journey with LOLux! Together, let's light up the crypto sky with the brilliance of laughter and innovation! 🚀🤣
